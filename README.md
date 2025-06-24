@@ -1,7 +1,8 @@
 <h2>Bangumi番组计划官网入口 - 动漫音乐游戏看网站入口|最新网址</h2>
 <p>Bangumi番组计划是一个专注于ACG（动画、漫画、游戏）领域的分享与交流平台，由Sai于2008年创立。它以“番组”（即节目）为核心，为用户提供了一个记录、分享和讨论各类ACG作品的社区。用户可以在这里记录自己看过的动画、书籍、听过的音乐，并通过独特的收视进度管理功能，避免重复观看或下载已看过的章节。此外，Bangumi还拥有一个庞大的ACG资料库，涵盖作品信息、角色介绍、制作人员等内容，方便用户一站式查询。其开发代号为“Chobits”，灵感来源于CLAMP的同名漫画，寓意为未来可能出现的人形电脑构建一个完善的ACG资料库。</p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/3351.html"><strong>Bangumi番组计划最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/3351.html" target="_blank"><strong>Bangumi番组计划最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan" target="_blank"><strong>在线看动漫/漫画导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
 <p><strong>收藏与进度管理</strong><br>用户可以方便地记录自己观看或阅读的ACG作品，并标记进度，如动画的集数、漫画的章节等。这一功能避免了重复观看或下载已看过的部分，极大地提高了用户体验。</p>
